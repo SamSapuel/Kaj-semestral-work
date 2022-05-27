@@ -1,1 +1,1 @@
-# samsapuel.github.io
+# Kaj semestral project
